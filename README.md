@@ -1,5 +1,4 @@
-### [hyperducing&hellip;&hellip;&hellip;jel](https://webmural.com/jel)
+## [chiron mural surreal](https://webmural.com/chiron)
 
-* [pisces](https://webmural.com/mp3) 💜
-* [smurples](https://webmural.com/les)
-* [`turbulence`](jel.svg)
+* suPerHero cubs
+* vILLain bears
